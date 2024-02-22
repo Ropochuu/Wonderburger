@@ -1,9 +1,7 @@
 Top Bun
 onion rings
 tomato sauce
-Cheese
-Cheese
-Cheese
+romeo
 Cheese
 Patty
 Patty
